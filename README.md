@@ -15,6 +15,6 @@
 界面简洁易用，强大的搜索和推荐功能让你可以快速找到自己喜欢的影片，带来愉快的观影体验。
 选择这些平台，你可以随时享受高清、流畅、免广告的日本AV免费影片，畅享纯净观影乐趣。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/z20250705/z11 ）</span>
 
 
